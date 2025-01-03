@@ -1,6 +1,6 @@
 # daggieh
-i am just a soft fast larner 
-Bimedical engineer and passionate with Telemedicine 
+I am just a soft fast learner 
+Biomedical engineer and passionate about Telemedicine and has a knack for biomedical equipment and tenders 
 @daggieh for IG
-@daggieh fror tik tok
+@daggieh for tik tok
 +254702781964 
